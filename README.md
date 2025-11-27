@@ -1,1 +1,0 @@
-Helios Systems Development Organization
